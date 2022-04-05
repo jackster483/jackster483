@@ -1,1 +1,3 @@
-I am a shitter programmer. Please bear with me as I learn all this shit.
+Fucking horrible dumbass, I am trying several things.
+If you're reading this, keep banging Screw please.
+Shoutout David Szymanski
